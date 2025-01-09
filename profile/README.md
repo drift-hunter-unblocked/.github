@@ -6,7 +6,7 @@ Experience the thrill of professional drifting in Drift Hunters Unblocked - the 
 
 ## 🎮 Play Drift Hunters Unblocked Now
 
-## <a href="https://github.com/">Play Drift Hunters Unblocked</a>
+## <a href="https://unblocked-gaming.github.io/drift-hunters-unblocked/">Play Drift Hunters Unblocked</a>
 
 ## What is Drift Hunters Unblocked?
 
